@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently on working on power system and power electronics<br>I'm looking for collaboration on Power System and Cyber-Physical  System<br>I'm current learning skills<br>
+I'm currently on working on power system and power electronics<br>I'm looking for collaboration on Power System and Cyber-Physical  System<br>I'm currently learning skills<br>
 
 
 ## 🌐 Socials:
